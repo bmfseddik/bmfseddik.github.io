@@ -10,4 +10,4 @@ Subscribe
 
 Thanks for the 14k views on the Granny video.
 
-2nd page on bmfseddik.github.io/vids
+2nd page on bmfseddik.github.io/vids (some problems in site not working)
