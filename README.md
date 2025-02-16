@@ -1,5 +1,7 @@
 Welcome to Bgaming
 
-Join our Discord
-see our youtube videos in youtube.com/@BGAMING1222
+Join our Discord at discord.gg/Nh52sXFApr
+
+see our YouTube videos at youtube.com/@BGAMING1222
 Subscribe 
+Site to be continued
